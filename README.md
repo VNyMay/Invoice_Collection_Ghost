@@ -149,6 +149,6 @@ This asset is suitable for:
 
 For enquiries about acquiring this project, please contact:
 
-- Email: your-email@example.com
+- Email: radwangmamer@gmail.com
 
 (Replace this with your actual email address before publishing.)
